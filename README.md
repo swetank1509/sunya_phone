@@ -1,1 +1,0 @@
-# sunya_phone
